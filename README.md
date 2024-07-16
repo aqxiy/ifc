@@ -26,7 +26,13 @@ Coffee 1 tbsp (Nescafe Taster’s Cafe House Blend light-medium Instant Coffee)
 
 Stir
 
-6.5 minute minimum wait
+3.5 minute wait
+
+Stir
+
+10 Raisins
+
+3.5 minute minimum wait
 
 Drink
 
