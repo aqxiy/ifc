@@ -26,7 +26,7 @@ Coffee 1 tbsp (Nescafe Taster’s Cafe House Blend light-medium Instant Coffee)
 
 Stir
 
-6.5 minute minumum wait
+6.5 minute minimum wait
 
 Drink
 
