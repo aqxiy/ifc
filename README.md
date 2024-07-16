@@ -1,5 +1,5 @@
 # ifc
-iF Coffee
+## $iF Coffee
 
 200 ml freezer unit filtered water, heated to boiling in electric kettle, measure with Karter 50 mL beaker
 
