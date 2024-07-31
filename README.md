@@ -34,7 +34,7 @@ Stir
 
 10 Raisins (from refrigeration, maybe 5 min @ ambient)
 
-3.5 minute minimum wait
+4.5 minute minimum wait
 
 Drink
 
