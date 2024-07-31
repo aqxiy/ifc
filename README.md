@@ -30,6 +30,8 @@ Stir
 
 Stir
 
+10 second wait
+
 10 Raisins (from refrigeration, maybe 5 min @ ambient)
 
 3.5 minute minimum wait
