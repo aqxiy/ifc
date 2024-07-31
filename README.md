@@ -54,9 +54,7 @@ Stir with below spoon clockwise medium speed for min 7 seconds but remove spoon 
 
 ## Additional Dosing Instructions
 
-Eat around 20 raisins, wait 3 minutes, sortDrink (aqxiy/sortdrink) the coffee
+Best 3 mins after around 20 raisins on an empty stomach
 
-3 minute wait
 
-lithegulp some
 
