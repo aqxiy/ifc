@@ -54,7 +54,7 @@ Stir with below spoon clockwise medium speed for min 7 seconds but remove spoon 
 
 ## Additional Dosing Instructions
 
-Drink some, lithegulp some, drink some; roughly 5-10 sec separation 
+Eat around 20 raisins, wait 3 minutes, sortDrink (aqxiy/sortdrink) the coffee
 
 3 minute wait
 
