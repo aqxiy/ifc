@@ -54,7 +54,7 @@ Stir with below spoon clockwise medium speed for min 7 seconds but remove spoon 
 
 ## Additional Dosing Instructions
 
-Best 3 mins after around 20 raisins on an empty stomach
+Best aqxiy/sortdrink 3 mins after around 20 raisins on an empty stomach
 
 
 
