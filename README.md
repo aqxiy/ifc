@@ -1,6 +1,6 @@
 # ifc
 ## $iF Coffee
-### A general purpose coffee better than the 'ol
+### A general purpose coffee
 
 200 ml freezer unit filtered water, heated to boiling in electric kettle, measure with Karter 50 mL beaker
 
